@@ -1,3 +1,7 @@
+![](https://komarev.com/ghpvc/?username=nottheghost&label=PATHOLOGICAL+LIARS&color=55499C)
+
+
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31x2dygswkaawllcptvpsg5m6mki&cover_image=true&theme=novatorem&showhu_offline=true&background_color=121212&interchange=true&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
 
