@@ -3,10 +3,11 @@
 
 <img width="564" height="188" alt="Untitled602_20260312134046" src="https://github.com/user-attachments/assets/4fa56e08-786e-4777-9d35-6260f64f5605" />
 
-<img width="1000" height="929" alt="Untitled600_20260312125907" src="https://github.com/user-attachments/assets/f08ff685-b667-441b-ae26-d637b02175ec" />
+<img width="1000" height="929" alt="Untitled600_20260312221016" src="https://github.com/user-attachments/assets/a5ebd429-8f1b-4edb-8167-2aaf252e32c4" />
 
 
-this shit is so ugly (wip)
+
+woooork in proooogress
 
 
 
